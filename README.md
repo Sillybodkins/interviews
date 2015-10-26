@@ -1,3 +1,3 @@
 # Empathy Interviews
 
-## ![Catherine Lann Andrews](catherineLannAndrews.md)
+## [Catherine Lann Andrews](catherineLannAndrews.md)
