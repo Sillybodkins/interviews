@@ -1,7 +1,7 @@
 # Catherine Lann Andrews
 ## October 22, 2015
 
-"Spoke with Catherine on Thursday evening. She had a rough day and had just gotten home from Crossfit. She has been playing since she was 9. She was raised playing. Her father was the Director of Golf at A&M. She played in college. And now plays a bunch of scramble tournaments.
+Spoke with Catherine on Thursday evening. She had a rough day and had just gotten home from Crossfit. She has been playing since she was 9. She was raised playing. Her father was the Director of Golf at A&M. She played in college. And now plays a bunch of scramble tournaments.
 
 She scores in the mid to upper 70s. Her career low was a 64 on July 3rd and almost cried at the end of that round she was so happy. She used to keep up with her handicap but it is difficult now without a home course. She keeps stats for putts, GIR and fairways on her scorecard.
 
@@ -27,4 +27,4 @@ She feels one of the biggest problems in golf is that it is hard to learn. And e
 
 There are no personal messages that pop up in the GolfMatch app. She had to go through and look at everyone who’s name started with a T and tap each one. She had no idea what was going on and had to find it. And had to figure out who sent the message and go to them.
 
-Honestly, she does not have anyone close to her age that plays regularly outside of the older men she plays with in San Marcos and San Antonio. But would love to continue the conversation."
+Honestly, she does not have anyone close to her age that plays regularly outside of the older men she plays with in San Marcos and San Antonio. But would love to continue the conversation.
