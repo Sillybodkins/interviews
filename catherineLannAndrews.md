@@ -1,5 +1,17 @@
-# Catherine Lann Andrews
+# Catherine Lann Andrews, low handicap female
 ## October 22, 2015
+
+## Validates
+* Frustrated finding people to play with
+* Golfers spend lots of time at Golfsmith
+* Low handicap golfers have a system for distance and club selection
+* Low handicap golfers keep stats on their scorecards
+## Invalidates
+## Also interesting
+* Deleted golf app becuase it used too much data
+* Downloaded Tinder to find others interested in Golf
+* Loved SkyCaddie when it was free
+* Focused on swinging not thinking
 
 Spoke with Catherine on Thursday evening. She had a rough day and had just gotten home from Crossfit. She has been playing since she was 9. She was raised playing. Her father was the Director of Golf at A&M. She played in college. And now plays a bunch of scramble tournaments.
 
