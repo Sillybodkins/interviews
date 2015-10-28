@@ -6,7 +6,9 @@
 * Golfers spend lots of time at Golfsmith
 * Low handicap golfers have a system for distance and club selection
 * Low handicap golfers keep stats on their scorecards
+
 ## Invalidates
+
 ## Also interesting
 * Deleted golf app becuase it used too much data
 * Downloaded Tinder to find others interested in Golf
