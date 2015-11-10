@@ -10,6 +10,7 @@
 
 ## Also Interesting
 * People would buy an app that uses sensors in flags, “In a heartbeat.” 
+* Interested in layup distances
 * Plays in tournaments and special groups
 * Likes getting to know new people
 
