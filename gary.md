@@ -1,4 +1,4 @@
-# Gary, Range finder and Garmin Watch User, Club Member
+# Gary, Uses Garmin Watch and Range Finder, Club Member
 ## November 10, 2015
 
 ## Validates
